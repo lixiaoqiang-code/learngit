@@ -3,4 +3,5 @@ work hard in the new year.
 
 luhan is my boyfriend.
 luhan is
-i am a little tired. 
+i am a little tired.
+eating lunch. 
