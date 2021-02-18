@@ -1,2 +1,2 @@
-today is the first working day of 2021.
-work hard in the new year. 
+today is the first working day of 2021. lixiaoqiang is beautiful girl.
+work hard in the new year. luoji is a beautiful girl.
